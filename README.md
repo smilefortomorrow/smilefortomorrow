@@ -2,7 +2,7 @@
 - 👀 I’m interested in programming, testing, earning, playing.[and laughing, humor, joke]
 - 🌱 I’m currently learning android, python, C series, ai, cv, unity... and Go~Lang
 - 💞️ I’m looking to collaborate on many and many of clients.
-- 📫 How to reach me : skype[live:.cid.d7382baf54cc111e] email[aaronlk1017@gmail.com, smilefortomorrow@outlook.com]
+- 📫 How to reach me : skype[live:.cid.d7382baf54cc111e] email[wsd871119b@gmail.com, smilefortomorrow@outlook.com]
 - 😄 Pronouns: SFT
 - ⚡ Fun fact: I love eating.
 
